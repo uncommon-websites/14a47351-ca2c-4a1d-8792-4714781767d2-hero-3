@@ -1,0 +1,2 @@
+# 14a47351-ca2c-4a1d-8792-4714781767d2-hero-3
+Hero section variant 3 for 14a47351-ca2c-4a1d-8792-4714781767d2
